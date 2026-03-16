@@ -69,3 +69,12 @@ Customers with higher income levels tend to have significantly higher lifetime v
 Campaign Effectiveness
 
 Campaign response rates remain relatively low, indicating opportunities for improved targeting.
+Business Recommendations
+
+Increase investment in high-performing channels such as store and web.
+
+Target high-income customer segments with personalized campaigns.
+
+Improve marketing targeting strategies to increase campaign response rates.
+
+Focus on high-value product categories such as wine.
